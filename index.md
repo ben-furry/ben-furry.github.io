@@ -9,6 +9,6 @@ Proof ~~that has *never* entered an image editing software~~:
 
 <img width="300" src="https://cdn.discordapp.com/attachments/267735321695748096/781708165033099264/Screenshot_20201126-202905_Discord.jpg"> <img width="500" src="https://media.discordapp.net/attachments/267735321695748096/781374374959644682/unknown.png">
 
-![](https://cdn.discordapp.com/attachments/728049907025313813/783389651359891507/Screenshot_20201201-113449_Discord.jpg)
+<img width="500" src="https://cdn.discordapp.com/attachments/728049907025313813/783389651359891507/Screenshot_20201201-113449_Discord.jpg"> ![](https://cdn.discordapp.com/attachments/267735321695748096/784132002785001483/Screenshot_20201123-121031_Discord.jpg)
 
 *This is a joke ben please don't hate me also blame porg*
