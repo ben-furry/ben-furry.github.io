@@ -13,4 +13,7 @@ Proof ~~that has *never* entered an image editing software~~:
  
 ![](https://cdn.discordapp.com/attachments/728067827898122253/810336104670298122/Screen_Shot_2021-02-13_at_9.25.14_PM.png) ![](https://cdn.discordapp.com/attachments/267735321695748096/806248690800656434/unknown.png)
 
+<img width="258" alt="Screen Shot 2021-02-26 at 6 05 57 PM" src="https://user-images.githubusercontent.com/43557963/109364695-59ded700-785d-11eb-80d2-d814eacdee8a.png"> ![image](https://user-images.githubusercontent.com/43557963/109364833-ab876180-785d-11eb-9ce9-58d7951501fa.png)
+
+
 *This is a joke ben please don't hate me also blame porg*
