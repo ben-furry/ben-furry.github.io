@@ -15,5 +15,7 @@ Proof ~~that has *never* entered an image editing software~~:
 
 <img width="258" alt="Screen Shot 2021-02-26 at 6 05 57 PM" src="https://user-images.githubusercontent.com/43557963/109364695-59ded700-785d-11eb-80d2-d814eacdee8a.png"> ![image](https://user-images.githubusercontent.com/43557963/109364833-ab876180-785d-11eb-9ce9-58d7951501fa.png)
 
+![](https://images-ext-2.discordapp.net/external/rdTDzIXHWjcjPkokJfyRKjKEujKgelefUgNpOqs_cHA/https/ur.red-panda.red/w0SEhSNh0?width=461&height=468)
+
 
 *This is a joke ben please don't hate me also blame porg*
