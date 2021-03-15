@@ -17,7 +17,6 @@ Proof ~~that has *never* entered an image editing software~~:
 
 ![](https://images-ext-2.discordapp.net/external/rdTDzIXHWjcjPkokJfyRKjKEujKgelefUgNpOqs_cHA/https/ur.red-panda.red/w0SEhSNh0?width=461&height=468) ![](https://images-ext-1.discordapp.net/external/WRklS5yQfVeYpZgxvbpufdNSnQYpv0hXkSOF2r06BDE/https/ur.red-panda.red/7jMPj0WdB?width=464&height=468)
 
-![image](https://user-images.githubusercontent.com/43557963/111177780-f228cb80-8580-11eb-97af-2a25c649fde2.png)
-
+![](https://user-images.githubusercontent.com/43557963/111177780-f228cb80-8580-11eb-97af-2a25c649fde2.png) <img width="300" src="https://user-images.githubusercontent.com/43557963/111180134-1d141f00-8583-11eb-9d1c-0e3c7e400514.png">
 
 *This is a joke ben please don't hate me also blame porg*
